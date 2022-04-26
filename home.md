@@ -24,3 +24,5 @@ Welcome to [manyara lake](tour/day-trip/manyara)
 ![](table.png)
 
 edit by balb in her vs code
+
+我也添加一行
