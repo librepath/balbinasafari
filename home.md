@@ -6,28 +6,22 @@ keywords: tanzania serengeti kilimanjaro safari zanzibar
 feature: sample.jpg
 ---
 
-# 欢迎游览坦桑尼亚
 
-##### 非洲原始草原上的动物世界
+# Travel to Tanzania
+##### With Balbina Safari Ltd
+Balbina Safari Limited is an East African registered Tour Operator based in Arusha- Tanzania. With a longtime experience of leading thousands of tourists each year in Tanzania's popular touring destination. Our endless adventures starts from the highest peak in Africa the Mount Kilimanjaro, visiting people (cultural tourism), Wildlife Safaris and there after rest and relax along the clean white sand beaches (Zanzibar) of Indian Ocean. We proudly welcome you!
 
-Paragraph Paragraph Paragraph Paragraph
-![hero](sample.jpg)
-## Heading 2
+## WHY CHOOSE BALBINA SAFARI?
 
-###### Heading 6 🇨🇳 标题 6 🇩🇪 De Heading 6
+- THE BEST OUTDOOR EQUIPMENT
+All our climbing equipment is from The North Face, Marmut and other top mountaineering brands, meaning the highest safety and comfort standards
 
-[About](about)
+- THE BEST HOSPITALITY PARTNERS
+Our safari itineraries feature only the best hotels and lodges, known for their unmatched service and comfort standards
 
-Welcome to [manyara lake](tour/day-trip/manyara)
+- PROFESSIONAL SAFARI GUIDES
+Our safari guides know every nook and cranny of the National Parks. They will lead your way to the hidden wildlife treasures of the African savannah
 
+[book](about/book)
 
-![](table.png)
-
-edit by balb in her vs code
-
-2 rows .
-
-3 rows
-
-我也添加一行
-
+[about](about/index)

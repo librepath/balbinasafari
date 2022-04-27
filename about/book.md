@@ -1,0 +1,18 @@
+# HOW TO BOOK A TANZANIA SAFARI.
+There is no fixed formula of booking a safari to Tanzania but here is a guideline of booking a safari with BALBINA Safari Limited . Our policy is to simplify Tanzania safari planning and booking.
+## 4 Steps of how to book a safari in Tanzania
+### Step 01 – What do I want to do in Tanzania?
+It is good to first come up with what you and your travel partners wish to do in Tanzania. Just as you might have seen in our website Tanzania has a lot to offer. It is important to discuss beforehand what you wish to do. A wildlife safari only, A safari combined with Mountain climbing, just hiking, beach extension, cultural encounters?. Such questions should be answered within your mind before sending your inquiry because that makes it even easier to come up with a once for all program.
+### Step 2 – How much does a safari cost?
+Safaris by Balbina Safari vary in price and it is good to ask yourself first what you wish to spend on safari. What determines the price of a safari is a question many do not have an answer to. Well; how many persons are traveling with you is one attribute. How many adults, how many children, the ages of the children, and how do you wish to share the rooms. Stay in Single rooms the higher the cost, but if you share double/twin rooms or triple rooms then the lower the cost of a safari. The biggest attribute to the cost of safari is however the category/standard of accommodation. Do you want to stay in a budget, or Mid –range, or Luxury or even super Luxury lodges and tented camps?Please note that safari tented camps are as costly as the lodges. By tented camps we mean the Tented rooms with en suite flash toilets and shower bathrooms with the same amenities as the lodges. Do you want to stay at public campsites? The season of travel is also a major attribute to the cost of a safari. Basically in Tanzania we have; High Season and Low Season.
+You can visit Tanzania for Luxury safaris in Tanzania or depending on your preference and budget, we can offer you our best Tanzania budget Safari package too.
+### Step 3 – Send an email,phone call or WhatsApp message or WhatsApp call.
+If you have some inquiry, questions , want any recommendations from us or have your safari  idea in your mind, please send an email to us about what you need .We shall get back to you as soon as possible with a program and price. If you are not satisfied with the program you are advised to request for amendments until you are satisfied. Once you are satisfied, we shall send to you our booking form which you will fill in and send back to us. We shall then send your invoice.
+
+### Step 4 – Paying for a Tanzania safari.
+
+Once you have received your invoice, you will be required to send by money transfer a deposit worth 30% of the total amount. This amount we use to secure the reservations of the accommodation, flights and any other services booked by us. The balance can then be paid the same way at least 14 days before your arrival or if you wish; you can still pay Cash on arrival, if you do not mind traveling with money in your pockets. This is the general procedure though a different arrangement can be agreed upon by the traveler and Balbina Safari Limited.
+
+In case you have any other questions or need any further information about Safari booking you should not hesitate to contact us by email or call.
+
+If you are planning to travel to Tanzania for your private safari tour for yourself or with family and or friends please contact some of our safari experts for free advice on how to book  a Tanzania safari!

@@ -17,6 +17,7 @@ itinerary:
 
 # Day trip Ngorongoro
 
+
 Safari!
 ![坦桑尼亚地图](map.jpg)
 
