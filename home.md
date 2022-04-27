@@ -21,6 +21,7 @@ Paragraph Paragraph Paragraph Paragraph
 Welcome to [manyara lake](tour/day-trip/manyara)
 
 
+
 ![](table.png)
 
 edit by balb in her vs code
@@ -30,4 +31,4 @@ edit by balb in her vs code
 3 rows
 
 我也添加一行
-
+Safari is ***safari
